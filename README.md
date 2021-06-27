@@ -1,4 +1,4 @@
-### Hi 👋 I'm [Heeeun Woo](https://www.notion.so/heeeun/HEEEUN-WOO-2b87b251562b4c41ad8abba16e18d717)
+### Hi 👋 I'm Heeeun Woo
 * UOS Senior Student
 * Major in Computer Science
 
